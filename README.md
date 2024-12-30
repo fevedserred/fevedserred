@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...fdgh
 - 😄 Pronouns: ...22456825252532da
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...gjl
 nv reer45686354
 <!---lk.256621
 fevedserred/fevedserred is a ✨ special ✨ reposisdftory because its `README.md` (this file) appears on your GitHub profile.
