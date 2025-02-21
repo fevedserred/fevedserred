@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fevedserred
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...6
+- 🌱 I’m currently learning ...61526
 - 💞️ I’m looking to collaborate on ...3244874744174748vcbcv9636666216+
 - 📫 How to reach me ...fdgh87877eyttesdhjjmh
 - 😄 Pronouns: ...hn85
