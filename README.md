@@ -1,7 +1,7 @@
 ,ff,ff- 👋 Hi, I’m @fevedserred
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...61526
-- 💞️ I’m looking to collaborate on ...3244874744174748vcbcv96366662161526+sfdsdf
+- 💞️ I’m looking to collaborate on ...3244874744174748vcbcv96366662161526+sfdsdfytytt
 - 📫 How to reach me ...fdgh87877eyttesdhjjmhghn52etggdfdgffdg534hhh
 - 😄 Pronouns: ...hn85uydsdsdsxzczxzx
 - ⚡ Fun fact: ...gjl69351xcxccx
