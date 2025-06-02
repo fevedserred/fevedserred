@@ -1,6 +1,6 @@
 ynhaekjm,ff,ff- 👋 Hi, I’m @fevedserredtrh
 - 👀 I’m interested in ...as gffgb gfbf gfhjhtr
-- 🌱 I’m currently learning ...61526tet
+- 🌱 I’m currently learning ...61526tetnmnmnnnbvcxvbvcbb
 - 💞️ I’m looking to collaborate on ...3244874744vvv74748vcbcv96366662161526+hngghnhgnhgncvbccjtyttdbfdbfdbffvcgjhhg
 - 📫 How to reach me ...fdgh87877eyttesdhjjmhghn52etggvdffdg534hhhdssfhnbbdrhththrtfejmhjhhhmhbrgffgftyuuyytytyuutyytuuiui,,kyhnyhnnrefre
 - 😄 Pronouns: ...hn85uydsdsdsxzczxzxsdrrrergergreger484526xcvxcvxc
