@@ -1,6 +1,6 @@
 etrzcxczxczczxynhaekjm,ff,ff- 👋 Hi, I’m @fevedserredtrh
 - 👀 I’m interested in ...as gffgb gfbf gfhjhtrz354
-- 🌱 I’m currently learning ...61526tetnmnmnnnbvcxvbvcbb
+- 🌱 I’m currently learning ...61526tetnmnmnnnbvcxvbvcbb5453241352
 - 💞️ I’m looking to collaborate on ...3244874744vvv74748vcbcv96366662161526+hngghnhgnhgncvbccjtyttdbfdbfdbffvcgjhhg
 - 📫 How to reach me 8799399...fdgh87877eyttesdhjjmhghn52etggvdffdg534hhhdssfhnbbdrhththrtfejmhjhhhmhbrgffgftyuuyytytyuutyytuuiui,,kyhnyhn98ollnrefrtrfrtfrfte7
 - 😄 Pronouns: ...hn85uydsdsdsxzczxzxsdrrrergergreger484526xcvxcvxc
